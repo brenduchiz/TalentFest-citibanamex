@@ -1,7 +1,8 @@
 
 # Tus Finanzas Digitales
 
-![angiemonroe github io_talentfest-citibanamex_ galaxy s5](https://user-images.githubusercontent.com/27248841/49710272-fe818980-fbfd-11e8-87a2-c3827418aca7.png)
+![1](https://user-images.githubusercontent.com/27248841/49710313-35579f80-fbfe-11e8-98e4-aea2b63b3d94.png)
+
 
 
 ## El Reto
